@@ -2,7 +2,7 @@
 
 Author: Spire, edit/fix by Mekz1222 
 
-video: https://youtu.be/oufw92MAwUE
+video: https://youtu.be/2Hp6KaWcUoY
 
 FiveM Finnish ESX Team: https://discord.gg/bYqmTSzeTr
 
